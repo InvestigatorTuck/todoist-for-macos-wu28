@@ -1,4 +1,4 @@
-
+Todoist for macOS updated Tool - voice notes and OCR scanning is the best Todoist for macOS tool, featuring voice notes and OCR scanning. Safe, efficient, and optimized for macOS
 
 
 
